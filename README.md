@@ -1,3 +1,2 @@
 # RAT-summer-project-app
-icsncowncwbcu   qnqocfn wcnqwcn
-ples raj and tejas
+Raj Aryan Tejas Summer Project App 
